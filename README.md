@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sreyaskj
+- 👀 I’m interested in learning new thinks about logistics 
+- 🌱 I’m currently learning about linkdin
+- 💞️ I’m looking to collaborate on anyone 
+- 📫 Please reach me in my linkdin profile https://www.linkedin.com/in/sreyas-k-j￾1126b51b5/
